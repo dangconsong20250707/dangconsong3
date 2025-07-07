@@ -15,4 +15,4 @@
 
 为了提升用户体验，本站页面加载速度快，保证不卡顿，优化了移动端观看体验，让用户无论在任何设备上都能轻松浏览。为了帮助用户快速找到所需内容，我们在页面中融入了相关关键词，如“日本AV免费”、“无码”“免费在线观看”等，确保用户在搜索时能够快速找到我们提供的资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong3 ）</span>
